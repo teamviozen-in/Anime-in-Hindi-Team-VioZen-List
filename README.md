@@ -11,3 +11,5 @@
 [Snow White with The Red Hair Hindi Sub | S01 + S02 + OVA | Akagami no Shirayuki-hime Hindi Subbed | Free Download](https://teamviozen.in/snow-white-with-the-red-hair-hindi-sub/)
 
 [Tsuritama Hindi Sub | S01 Completed | Fishing Ball Hindi Sub | Free Download](https://teamviozen.in/tsuritama-hindi-sub/)
+
+[The Vampire Dies in No Time Hindi Sub | S01 + S02 Completed | Kyuuketsuki Sugu Shinu Hindi Sub | Free Download](https://teamviozen.in/the-vampire-dies-in-no-time-hindi-sub/)
